@@ -2,7 +2,7 @@
 
 ### Ingredientes
 
-1 kg de filé de frango em tiras finas
+- 1 kg de filé de frango em tiras finas
 
 - 2 cebolas picadas
 - meia colher (sopa) de sal
