@@ -1,4 +1,4 @@
-# Estrogonofe de Frango
+# Strogonoff de Frango
 
 ### Ingredientes
 
